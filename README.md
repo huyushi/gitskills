@@ -1,2 +1,1 @@
-Creating a new branch is quic:K
-HUYUSHI
+Creating a new branch is quick & simple
